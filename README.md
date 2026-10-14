@@ -1,2 +1,0 @@
-# DeenBondhu-BD
-DeenBondhu BD
